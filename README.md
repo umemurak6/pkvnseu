@@ -2,7 +2,8 @@
 
 随着 ChatGPT Plus 在全球范围内的火热，许多用户都在寻找通过美区 App Store 开通服务的最新方法。本文将为你提供详尽的指南，帮助你在 2025 年 1 月成功开通 ChatGPT Plus。
 
-![image](https://github.com/umemurak6/pkvnseu/assets/169876120/4bab8596-626f-4d51-b081-f83731e406d6)
+![image](https://github.com/user-attachments/assets/07ae53c5-ee46-49e3-86af-47d1ca2f17fe)
+
 
 #### 一、创建美区 Apple ID
 
